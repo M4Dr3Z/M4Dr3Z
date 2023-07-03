@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @M4Dr3Z
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning everything
+- 💞️ I’m looking to collaborate on some good shit
+- 📫 How to reach me @mail
